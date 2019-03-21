@@ -1,2 +1,2 @@
 # jos
-MODs Tentara National Indonesia by JOS Team
+MODs Tentara Nasional Indonesia by JOS Team
